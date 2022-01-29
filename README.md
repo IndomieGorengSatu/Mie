@@ -1,1 +1,1 @@
-## I used to hate facial hair, but then it grew on me.
+## Why are mummys scared of vacation? They're afraid to unwind.
