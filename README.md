@@ -1,1 +1,1 @@
-## What creature is smarter than a talking parrot? A spelling bee.
+## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
