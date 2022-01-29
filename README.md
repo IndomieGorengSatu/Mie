@@ -1,1 +1,1 @@
-## What biscuit does a short person like? Shortbread. 
+## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
