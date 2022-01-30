@@ -1,1 +1,1 @@
-## What's brown and sticky? A stick.
+## Why was the big cat disqualified from the race? Because it was a cheetah.
