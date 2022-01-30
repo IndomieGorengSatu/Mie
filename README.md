@@ -1,1 +1,1 @@
-## I bought shoes from a drug dealer once. I don't know what he laced them with, but I was tripping all day.
+## I cut my finger cutting cheese. I know it may be a cheesy story but I feel grate now.
