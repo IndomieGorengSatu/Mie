@@ -1,1 +1,1 @@
-## What does a pirate pay for his corn? A buccaneer!
+## A termite walks into a bar and asks “Is the bar tender here?”
