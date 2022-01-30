@@ -1,1 +1,1 @@
-## If two vegans are having an argument, is it still considered beef?
+## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
