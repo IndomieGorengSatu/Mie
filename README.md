@@ -1,1 +1,1 @@
-## Have you heard of the band 1023MB? They haven't got a gig yet.
+## I bought shoes from a drug dealer once. I don't know what he laced them with, but I was tripping all day.
