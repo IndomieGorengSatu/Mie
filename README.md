@@ -1,1 +1,1 @@
-## What has ears but cannot hear? A field of corn.
+## People who don't eat gluten are really going against the grain.
