@@ -1,1 +1,1 @@
-## My pet mouse 'Elvis' died last night. He was caught in a trap..
+## This furniture store keeps emailing me, all I wanted was one night stand!
