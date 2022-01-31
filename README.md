@@ -1,1 +1,1 @@
-## I tried to write a chemistry joke, but could never get a reaction.
+## Did you know that protons have mass? I didn't even know they were catholic.
