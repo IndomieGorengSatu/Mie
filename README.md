@@ -1,1 +1,1 @@
-## Did you hear about the cheese who saved the world? It was Legend-dairy!
+## I’m on a whiskey diet. I’ve lost three days already.
