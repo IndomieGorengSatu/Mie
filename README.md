@@ -1,1 +1,1 @@
-## Why did the melons plan a big wedding? Because they cantaloupe!
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
