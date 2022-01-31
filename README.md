@@ -1,1 +1,3 @@
-## Why did the tomato blush? Because it saw the salad dressing.
+## What's the worst part about being a cross-eyed teacher?
+## 
+## They can't control their pupils.
