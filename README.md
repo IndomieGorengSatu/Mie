@@ -1,1 +1,1 @@
-## Why are mummys scared of vacation? They're afraid to unwind.
+## Why did the tomato blush? Because it saw the salad dressing.
