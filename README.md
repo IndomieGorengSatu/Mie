@@ -1,1 +1,1 @@
-## What time did the man go to the dentist? Tooth hurt-y.
+## How do you steal a coat? You jacket.
