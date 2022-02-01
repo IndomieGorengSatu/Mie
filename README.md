@@ -1,1 +1,1 @@
-## Camping is intense.
+## Why do bees have sticky hair? Because they use honey combs!
