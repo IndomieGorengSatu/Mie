@@ -1,1 +1,1 @@
-## What did the 0 say to the 8? Nice belt.
+## Two satellites decided to get married. The wedding wasn't much, but the reception was incredible.
