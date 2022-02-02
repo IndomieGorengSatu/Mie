@@ -1,3 +1,1 @@
-## Never Trust Someone With Graph Paper...
-## 
-## They're always plotting something.
+## It's difficult to say what my wife does, she sells sea shells by the sea shore.
