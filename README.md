@@ -1,1 +1,1 @@
-## My sea sickness comes in waves.
+## Our wedding was so beautiful, even the cake was in tiers.
