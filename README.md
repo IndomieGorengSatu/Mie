@@ -1,1 +1,1 @@
-## My wife is on a tropical fruit diet, the house is full of stuff. It is enough to make a mango crazy.
+## Why don’t seagulls fly over the bay? Because then they’d be bay-gulls!
