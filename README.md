@@ -1,1 +1,1 @@
-## What do you call a boomerang that won't come back? A stick.
+## My dentist is the best, he even has a little plaque!
