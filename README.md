@@ -1,1 +1,1 @@
-## How do you get a baby alien to sleep?  You rocket.
+## What did one plate say to the other plate? Dinner is on me!
