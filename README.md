@@ -1,1 +1,1 @@
-## What did one plate say to the other plate? Dinner is on me!
+## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
