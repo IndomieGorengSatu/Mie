@@ -1,1 +1,1 @@
-## Where did you learn to make ice cream? Sunday school.
+## Why do bees hum? Because they don't know the words.
