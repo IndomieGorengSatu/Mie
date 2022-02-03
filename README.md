@@ -1,1 +1,1 @@
-## Leather is great for sneaking around because it's made of hide.
+## They tried to make a diamond shaped like a duck. It quacked under the pressure.
