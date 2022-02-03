@@ -1,1 +1,1 @@
-## Atheism is a non-prophet organisation.
+## What do you call a troublesome Canadian high schooler? A poutine.
