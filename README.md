@@ -1,1 +1,1 @@
-## People who don't eat gluten are really going against the grain.
+## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
