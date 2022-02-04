@@ -1,1 +1,1 @@
-## What do you call your friend who stands in a hole? Phil.
+## What did the ocean say to the shore? Nothing, it just waved.
