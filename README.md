@@ -1,1 +1,1 @@
-## What musical instrument is found in the bathroom? A tuba toothpaste.
+## Why did the octopus beat the shark in a fight? Because it was well armed.
