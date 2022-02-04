@@ -1,1 +1,1 @@
-## What did the ocean say to the shore? Nothing, it just waved.
+## I broke my finger at work today, on the other hand I'm completely fine.
