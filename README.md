@@ -1,1 +1,2 @@
-## I cut my finger chopping cheese, but I think that I may have grater problems.
+## What did the hat say to the scarf?
+## You can hang around. I'll just go on ahead.
