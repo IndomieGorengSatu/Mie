@@ -1,1 +1,1 @@
-## I broke my finger at work today, on the other hand I'm completely fine.
+## Why don’t seagulls fly over the bay? Because then they’d be bay-gulls!
