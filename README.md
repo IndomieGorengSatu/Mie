@@ -1,1 +1,1 @@
-## “My Dog has no nose.” “How does he smell?” “Awful”
+## What does an angry pepper do? It gets jalapeño face.
