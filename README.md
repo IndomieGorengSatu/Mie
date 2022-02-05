@@ -1,1 +1,1 @@
-## To the person who stole my anti-depressant pills: I hope you're happy now.
+## Me and my mates are in a band called Duvet. We're a cover band.
