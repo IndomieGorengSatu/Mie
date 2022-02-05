@@ -1,1 +1,1 @@
-## Who is the coolest Doctor in the hospital? The hip Doctor!
+## How can you tell a vampire has a cold? They start coffin.
