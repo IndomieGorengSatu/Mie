@@ -1,1 +1,1 @@
-## What does an angry pepper do? It gets jalapeño face.
+## Velcro… What a rip-off.
