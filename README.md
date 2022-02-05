@@ -1,1 +1,1 @@
-## Why do bees hum? Because they don't know the words.
+## To the person who stole my anti-depressant pills: I hope you're happy now.
