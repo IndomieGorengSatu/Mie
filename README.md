@@ -1,1 +1,1 @@
-## Slept like a log last night … woke up in the fireplace.
+## Why are oranges the smartest fruit? Because they are made to concentrate. 
