@@ -1,1 +1,2 @@
-## I broke my finger at work today, on the other hand I'm completely fine.
+## What's the difference between a seal and a sea lion?
+## An ion! 
