@@ -1,1 +1,2 @@
-## Can a kangaroo jump higher than the Empire State Building? Of course. The Empire State Building can't jump.
+## Q: What did the spaghetti say to the other spaghetti?
+## A: Pasta la vista, baby!
