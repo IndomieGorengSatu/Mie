@@ -1,1 +1,2 @@
-## If at first you don't succeed, sky diving is not for you!
+## What's large, grey, and doesn't matter?
+## An irrelephant.
