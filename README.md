@@ -1,2 +1,1 @@
-## What's large, grey, and doesn't matter?
-## An irrelephant.
+## Why couldn't the kid see the pirate movie? Because it was rated arrr!
