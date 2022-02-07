@@ -1,1 +1,1 @@
-## Want to hear a chimney joke? Got stacks of em! First one's on the house
+## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
