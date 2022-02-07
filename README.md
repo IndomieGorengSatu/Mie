@@ -1,1 +1,1 @@
-## Two peanuts were walking down the street. One was a salted.
+## Parallel lines have so much in common. It’s a shame they’ll never meet.
