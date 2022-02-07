@@ -1,1 +1,1 @@
-## Parallel lines have so much in common. It’s a shame they’ll never meet.
+## Want to hear a chimney joke? Got stacks of em! First one's on the house
