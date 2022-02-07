@@ -1,1 +1,1 @@
-## What do you call a fly without wings? A walk.
+## A cannibal is someone who is fed up with people.
