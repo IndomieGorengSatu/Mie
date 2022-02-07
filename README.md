@@ -1,1 +1,1 @@
-## Did you hear that David lost his ID in prague? Now we just have to call him Dav.
+## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
