@@ -1,2 +1,1 @@
-## What is the best way to carve?
-## Whittle by whittle.
+## Why do wizards clean their teeth three times a day? To prevent bat breath!
