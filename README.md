@@ -1,1 +1,1 @@
-## A beekeeper was indicted after he confessed to years of stealing at work. They charged him with emBEEzlement
+## What kind of tree fits in your hand? A palm tree!
