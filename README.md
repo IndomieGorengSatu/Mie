@@ -1,1 +1,1 @@
-## What do you call a dictionary on drugs? High definition.
+## What did the pirate say on his 80th birthday? Aye Matey!
