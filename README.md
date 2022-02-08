@@ -1,1 +1,1 @@
-## Sore throats are a pain in the neck!
+## Why are mummys scared of vacation? They're afraid to unwind.
