@@ -1,1 +1,1 @@
-## What does an angry pepper do? It gets jalapeño face.
+## Archaeology really is a career in ruins.
