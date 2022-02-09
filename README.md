@@ -1,1 +1,1 @@
-## What time did the man go to the dentist? Tooth hurt-y.
+## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
