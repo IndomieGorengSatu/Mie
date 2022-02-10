@@ -1,1 +1,1 @@
-## Did you hear about the cheese who saved the world? It was Legend-dairy!
+## A bartender broke up with her boyfriend, but he kept asking her for another shot.
