@@ -1,1 +1,3 @@
-## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
+## What is the difference between ignorance and apathy?
+## 
+## I don't know and I don't care.
