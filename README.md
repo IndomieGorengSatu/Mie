@@ -1,1 +1,1 @@
-## Two dyslexics walk into a bra.
+## Did you hear the joke about the wandering nun? She was a roman catholic.
