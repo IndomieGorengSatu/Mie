@@ -1,1 +1,1 @@
-## Why do bees have sticky hair? Because they use honey combs!
+## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
