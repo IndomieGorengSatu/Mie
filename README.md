@@ -1,1 +1,1 @@
-## Two guys walked into a bar, the third one ducked.
+## Two dyslexics walk into a bra.
