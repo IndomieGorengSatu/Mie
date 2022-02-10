@@ -1,1 +1,1 @@
-## Did you hear the joke about the wandering nun? She was a roman catholic.
+## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
