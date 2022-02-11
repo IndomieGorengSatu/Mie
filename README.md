@@ -1,1 +1,1 @@
-## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
+## I have kleptomania, but when it gets bad, I take something for it.
