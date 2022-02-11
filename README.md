@@ -1,1 +1,1 @@
-## Leather is great for sneaking around because it's made of hide.
+## I decided to sell my Hoover… well it was just collecting dust.
