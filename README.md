@@ -1,1 +1,1 @@
-## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
+## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
