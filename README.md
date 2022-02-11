@@ -1,1 +1,1 @@
-## What do you call a beehive without the b's? An eehive.
+## Why is the ocean always blue? Because the shore never waves back.
