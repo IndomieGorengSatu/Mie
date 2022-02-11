@@ -1,1 +1,1 @@
-## What do you call your friend who stands in a hole? Phil.
+## This furniture store keeps emailing me, all I wanted was one night stand!
