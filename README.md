@@ -1,1 +1,1 @@
-## It's only a murder of crows if there's probable caws.
+## They tried to make a diamond shaped like a duck. It quacked under the pressure.
