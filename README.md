@@ -1,2 +1,1 @@
-## What did the green grape say to the purple grape?
-## BREATH!!
+## Leather is great for sneaking around because it's made of hide.
