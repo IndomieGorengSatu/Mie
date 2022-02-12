@@ -1,1 +1,1 @@
-## Past, present, and future walked into a bar.... It was tense.
+## How do locomotives know where they're going? Lots of training
