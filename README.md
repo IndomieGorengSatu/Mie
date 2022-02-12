@@ -1,1 +1,1 @@
-## I got an A on my origami assignment when I turned my paper into my teacher
+## What did the beaver say to the tree? It's been nice gnawing you.
