@@ -1,1 +1,1 @@
-## I don't trust stairs. They're always up to something.
+## What do you call a careful wolf? Aware wolf.
