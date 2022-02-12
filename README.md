@@ -1,1 +1,1 @@
-## I had a rough day, and then somebody went and ripped the front and back pages from my dictionary. It just goes from bad to worse.
+## A doll was recently found dead in a rice paddy. It's the only known instance of a nick nack paddy wack.
