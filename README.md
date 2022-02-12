@@ -1,1 +1,2 @@
-## Why couldn't the lifeguard save the hippie? He was too far out, man.
+## What's the difference between a seal and a sea lion?
+## An ion! 
