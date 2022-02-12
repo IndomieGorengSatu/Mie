@@ -1,1 +1,1 @@
-## What do you call an elephant that doesn’t matter? An irrelephant.
+## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
