@@ -1,1 +1,1 @@
-## If at first you don't succeed, sky diving is not for you!
+## Why couldn't the lifeguard save the hippie? He was too far out, man.
