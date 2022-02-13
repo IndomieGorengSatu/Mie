@@ -1,1 +1,1 @@
-## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
+## What do you do when your bunny gets wet? You get your hare dryer.
