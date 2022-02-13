@@ -1,1 +1,1 @@
-## It doesn't matter how much you push the envelope. It will still be stationary.
+## I'll tell you what often gets over looked... garden fences.
