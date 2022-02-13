@@ -1,1 +1,1 @@
-## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
+## I used to work in a shoe recycling shop. It was sole destroying.
