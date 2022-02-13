@@ -1,1 +1,1 @@
-## I'll tell you what often gets over looked... garden fences.
+## Where do sheep go to get their hair cut? The baa-baa shop.
