@@ -1,1 +1,1 @@
-## Atheism is a non-prophet organisation.
+## Today a man knocked on my door and asked for a small donation towards the local swimming pool. I gave him a glass of water.
