@@ -1,1 +1,1 @@
-## Why did the half blind man fall in the well? Because he couldn't see that well!
+## Me and my mates are in a band called Duvet. We're a cover band.
