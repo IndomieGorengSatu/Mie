@@ -1,1 +1,1 @@
-## Thanks for explaining the word "many" to me. It means a lot.
+## Why did the half blind man fall in the well? Because he couldn't see that well!
