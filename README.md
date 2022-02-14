@@ -1,1 +1,2 @@
-## Egyptians claimed to invent the guitar, but they were such lyres.﻿
+## Some people say that I never got over my obsession with Phil Collins.
+## But take a look at me now.
