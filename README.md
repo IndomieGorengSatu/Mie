@@ -1,1 +1,1 @@
-## My pet mouse 'Elvis' died last night. He was caught in a trap..
+## Why didn't the number 4 get into the nightclub? Because he is 2 square.
