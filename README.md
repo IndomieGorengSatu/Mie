@@ -1,1 +1,1 @@
-## I invented a new word! Plagiarism!
+## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
