@@ -1,1 +1,1 @@
-## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
+## Why did the man run around his bed? Because he was trying to catch up on his sleep!
