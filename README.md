@@ -1,1 +1,1 @@
-## What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
+## I am terrified of elevators. I’m going to start taking steps to avoid them.
