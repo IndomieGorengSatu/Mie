@@ -1,1 +1,1 @@
-## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
+## Why did the girl smear peanut butter on the road? To go with the traffic jam.
