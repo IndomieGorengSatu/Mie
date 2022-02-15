@@ -1,1 +1,1 @@
-## How are false teeth like stars? They come out at night!
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
