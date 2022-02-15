@@ -1,1 +1,1 @@
-## My sister bet me $15 that I couldn't build a car out of spaghetti. You should have seen the look on her face as I drove pasta.
+## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
