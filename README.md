@@ -1,1 +1,1 @@
-## What do you call a pig with three eyes? Piiig
+## Why are graveyards so noisy? Because of all the coffin.
