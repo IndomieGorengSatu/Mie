@@ -1,1 +1,1 @@
-## Some people eat light bulbs. They say it's a nice light snack.
+## How are false teeth like stars? They come out at night!
