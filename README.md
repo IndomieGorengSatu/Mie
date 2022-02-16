@@ -1,1 +1,1 @@
-## Mountains aren't just funny, they are hill areas
+## When is a door not a door? When it's ajar.
