@@ -1,1 +1,1 @@
-## What's orange and sounds like a parrot? A Carrot.
+## Mountains aren't just funny, they are hill areas
