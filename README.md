@@ -1,1 +1,1 @@
-## What is this movie about? It is about 2 hours long.
+## Why did the barber win the race? He took a short cut.
