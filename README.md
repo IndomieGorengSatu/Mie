@@ -1,1 +1,1 @@
-## What is the hardest part about sky diving? The ground.
+## Did you hear about the runner who was criticized? He just took it in stride
