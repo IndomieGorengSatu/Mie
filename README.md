@@ -1,1 +1,1 @@
-## What kind of bagel can fly? A plain bagel.
+## Why did the tree go to the dentist? It needed a root canal.
