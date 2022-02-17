@@ -1,1 +1,1 @@
-## What do you get when you cross a bee and a sheep? A bah-humbug.
+## I tried to write a chemistry joke, but could never get a reaction.
