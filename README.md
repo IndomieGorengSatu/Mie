@@ -1,1 +1,1 @@
-## Want to hear a chimney joke? Got stacks of em! First one's on the house
+## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
