@@ -1,1 +1,1 @@
-## What is a vampire's favorite fruit? A blood orange.
+## Did you hear about the new restaurant on the moon? The food is great, but there’s just no atmosphere.
