@@ -1,1 +1,2 @@
-## To the person who stole my anti-depressant pills: I hope you're happy now.
+## What is red and smells like blue paint?
+## Red paint!
