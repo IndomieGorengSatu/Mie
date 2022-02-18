@@ -1,1 +1,1 @@
-## Recent survey revealed 6 out of 7 dwarf's aren't happy.
+## Why don’t seagulls fly over the bay? Because then they’d be bay-gulls!
