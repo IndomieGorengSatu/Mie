@@ -1,1 +1,1 @@
-## What do you call a fashionable lawn statue with an excellent sense of rhythmn? A metro-gnome
+## A butcher accidentally backed into his meat grinder and got a little behind in his work that day.
