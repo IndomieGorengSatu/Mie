@@ -1,1 +1,1 @@
-## What do you call a cow with two legs? Lean beef.
+## Where do hamburgers go to dance? The meat-ball.
