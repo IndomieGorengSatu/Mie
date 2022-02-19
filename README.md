@@ -1,1 +1,1 @@
-## Why do birds fly south for the winter? Because it's too far to walk.
+## Yesterday a clown held a door open for me. I thought it was a nice jester.
