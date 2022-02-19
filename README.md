@@ -1,1 +1,1 @@
-## I've been trying to come up with a dad joke about momentum . . . but I just can't seem to get it going.
+## For Valentine's day, I decided to get my wife some beads for an abacus.  It's the little things that count.
