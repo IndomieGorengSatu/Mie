@@ -1,1 +1,1 @@
-## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
+## Last night me and my girlfriend watched three DVDs back to back. Luckily I was the one facing the TV.
