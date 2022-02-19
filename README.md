@@ -1,1 +1,1 @@
-## How do you make a hankie dance? Put a little boogie in it.
+## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
