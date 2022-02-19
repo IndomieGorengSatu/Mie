@@ -1,1 +1,1 @@
-## Why do cows wear bells? Because their horns don't work.
+## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
