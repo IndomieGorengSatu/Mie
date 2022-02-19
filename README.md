@@ -1,1 +1,1 @@
-## Velcro… What a rip-off.
+## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
