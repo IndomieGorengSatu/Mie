@@ -1,1 +1,1 @@
-## You can't trust a ladder. It will always let you down
+## Why did the chicken get a penalty? For fowl play.
