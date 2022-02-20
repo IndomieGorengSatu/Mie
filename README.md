@@ -1,3 +1,3 @@
-## What was the pumpkin’s favorite sport?
+## What's the worst part about being a cross-eyed teacher?
 ## 
-## Squash.
+## They can't control their pupils.
