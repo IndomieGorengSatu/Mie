@@ -1,1 +1,1 @@
-## Why is there always a gate around cemeteries? Because people are always dying to get in.
+## Why do you never see elephants hiding in trees? Because they're so good at it.
