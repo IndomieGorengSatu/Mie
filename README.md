@@ -1,1 +1,1 @@
-## Did you hear about the guy who invented Lifesavers? They say he made a mint.
+## A man was caught stealing in a supermarket today while balanced on the shoulders of a couple of vampires. He was charged with shoplifting on two counts. 
