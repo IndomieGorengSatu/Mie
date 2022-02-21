@@ -1,1 +1,1 @@
-## What did the pirate say on his 80th birthday? Aye Matey!
+## How does a French skeleton say hello? Bone-jour.
