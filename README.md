@@ -1,1 +1,1 @@
-## When Dad drops a pea off of his plate ‘oh dear I’ve pee’d on the table!
+## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
