@@ -1,1 +1,1 @@
-## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
+## For Valentine's day, I decided to get my wife some beads for an abacus.  It's the little things that count.
