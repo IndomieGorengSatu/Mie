@@ -1,1 +1,1 @@
-## What did the judge say to the dentist? Do you swear to pull the tooth, the whole tooth and nothing but the tooth?
+## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
