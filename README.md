@@ -1,1 +1,1 @@
-## What do you call your friend who stands in a hole? Phil.
+## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
