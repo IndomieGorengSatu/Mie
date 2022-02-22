@@ -1,1 +1,1 @@
-## What did the calculator say to the student? You can count on me.
+## When do doctors get angry? When they run out of patients.
