@@ -1,1 +1,1 @@
-## If at first you don't succeed, sky diving is not for you!
+## What do bees do after they are married? They go on a honeymoon.
