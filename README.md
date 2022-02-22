@@ -1,1 +1,1 @@
-## What do bees do after they are married? They go on a honeymoon.
+## Why are ghosts bad liars? Because you can see right through them!
