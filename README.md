@@ -1,1 +1,1 @@
-## A cannibal is someone who is fed up with people.
+## What did the piece of bread say to the knife? Butter me up.
