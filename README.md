@@ -1,1 +1,1 @@
-## How did Darth Vader know what Luke was getting for Christmas? He felt his presents.
+## What do you call a droid that takes the long way around? R2 detour.
