@@ -1,1 +1,1 @@
-## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
+## How did Darth Vader know what Luke was getting for Christmas? He felt his presents.
