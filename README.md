@@ -1,1 +1,1 @@
-## What do you call a droid that takes the long way around? R2 detour.
+## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
