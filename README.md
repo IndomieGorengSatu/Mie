@@ -1,1 +1,1 @@
-## What kind of pants do ghosts wear? Boo jeans.
+## What did the Red light say to the Green light? Don't look at me I'm changing!
