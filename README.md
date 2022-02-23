@@ -1,1 +1,1 @@
-## Leather is great for sneaking around because it's made of hide.
+## What kind of pants do ghosts wear? Boo jeans.
