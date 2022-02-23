@@ -1,2 +1,1 @@
-##  I never wanted to believe that my Dad was stealing from his job as a road worker. But when I got home, all the signs were there.
-## 
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
