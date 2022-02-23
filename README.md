@@ -1,1 +1,2 @@
-## Why didn’t the orange win the race? It ran out of juice.
+##  I never wanted to believe that my Dad was stealing from his job as a road worker. But when I got home, all the signs were there.
+## 
