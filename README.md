@@ -1,1 +1,1 @@
-## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
+## Did you hear about the scientist who was lab partners with a pot of boiling water? He had a very esteemed colleague.
