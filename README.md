@@ -1,1 +1,1 @@
-## How are false teeth like stars? They come out at night!
+## Doctor you've got to help me, I'm addicted to Twitter. Doctor: I don't follow you.
