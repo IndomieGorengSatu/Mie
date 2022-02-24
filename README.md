@@ -1,1 +1,1 @@
-## Why does Superman get invited to dinners? Because he is a Supperhero.
+## Why are skeletons so calm? Because nothing gets under their skin.
