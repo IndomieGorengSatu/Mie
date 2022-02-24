@@ -1,1 +1,1 @@
-## Why did the cookie cry? It was feeling crumby.
+## Sgt.: Commissar! Commissar! The troops are revolting! Commissar: Well, you’re pretty repulsive yourself.
