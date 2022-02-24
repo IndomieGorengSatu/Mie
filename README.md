@@ -1,1 +1,3 @@
-## What did the left eye say to the right eye? Between us, something smells!
+## What's the worst part about being a cross-eyed teacher?
+## 
+## They can't control their pupils.
