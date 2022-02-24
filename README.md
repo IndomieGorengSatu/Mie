@@ -1,1 +1,1 @@
-## What's blue and not very heavy?  Light blue.
+## Toasters were the first form of pop-up notifications.
