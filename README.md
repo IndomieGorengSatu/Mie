@@ -1,1 +1,1 @@
-## A man was caught stealing in a supermarket today while balanced on the shoulders of a couple of vampires. He was charged with shoplifting on two counts. 
+## A man walked in to a bar with some asphalt on his arm. He said “Two beers please, one for me and one for the road.”
