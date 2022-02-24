@@ -1,1 +1,1 @@
-## What's orange and sounds like a parrot? A Carrot.
+## Where did Captain Hook get his hook? From a second hand store.
