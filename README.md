@@ -1,1 +1,1 @@
-## Why is it so windy inside an arena? All those fans.
+## What's blue and not very heavy?  Light blue.
