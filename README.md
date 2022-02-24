@@ -1,1 +1,1 @@
-## Where did Captain Hook get his hook? From a second hand store.
+## Why do mathematicians hate the U.S.? Because it's indivisible.
