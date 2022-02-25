@@ -1,1 +1,1 @@
-## I don't trust stairs. They're always up to something.
+## A police officer caught two kids playing with a firework and a car battery. He charged one and let the other one off.
