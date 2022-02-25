@@ -1,1 +1,1 @@
-## When you have a bladder infection, urine trouble.
+## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
