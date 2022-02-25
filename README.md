@@ -1,1 +1,1 @@
-## Can a kangaroo jump higher than the Empire State Building? Of course. The Empire State Building can't jump.
+## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
