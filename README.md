@@ -1,2 +1,1 @@
-## What is the best way to carve?
-## Whittle by whittle.
+## What do you call a fashionable lawn statue with an excellent sense of rhythmn? A metro-gnome
