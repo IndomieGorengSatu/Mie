@@ -1,1 +1,1 @@
-## Why did the opera singer go sailing? They wanted to hit the high Cs.
+## There's not really any training for garbagemen. They just pick things up as they go.
