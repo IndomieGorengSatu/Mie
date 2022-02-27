@@ -1,1 +1,1 @@
-## What do you call a duck that gets all A's? A wise quacker.
+## What time did the man go to the dentist? Tooth hurt-y.
