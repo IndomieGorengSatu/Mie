@@ -1,1 +1,1 @@
-## Why was the picture sent to prison? It was framed.
+## What do you call a duck that gets all A's? A wise quacker.
