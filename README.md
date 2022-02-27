@@ -1,1 +1,1 @@
-## What do computers and air conditioners have in common? They both become useless when you open windows.
+## Me and my mates are in a band called Duvet. We're a cover band.
