@@ -1,2 +1,1 @@
-## What is the best way to carve?
-## Whittle by whittle.
+## What does a pirate pay for his corn? A buccaneer!
