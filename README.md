@@ -1,1 +1,1 @@
-## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
+## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
