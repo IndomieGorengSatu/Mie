@@ -1,1 +1,1 @@
-## I used to hate facial hair, but then it grew on me.
+## I don't trust stairs. They're always up to something.
