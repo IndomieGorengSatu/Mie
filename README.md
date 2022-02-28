@@ -1,1 +1,3 @@
-## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
+## Never Trust Someone With Graph Paper...
+## 
+## They're always plotting something.
