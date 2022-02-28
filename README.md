@@ -1,1 +1,1 @@
-## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
+## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
