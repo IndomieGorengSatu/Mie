@@ -1,3 +1,1 @@
-## What was the pumpkin’s favorite sport?
-## 
-## Squash.
+## Have you heard about corduroy pillows?  They're making headlines!
