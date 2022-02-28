@@ -1,1 +1,1 @@
-## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
+## Why do bananas have to put on sunscreen before they go to the beach? Because they might peel!
