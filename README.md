@@ -1,1 +1,1 @@
-## Two dyslexics walk into a bra.
+## Our wedding was so beautiful, even the cake was in tiers.
