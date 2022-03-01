@@ -1,2 +1,1 @@
-## What did the hat say to the scarf?
-## You can hang around. I'll just go on ahead.
+## I don’t play soccer because I enjoy the sport. I’m just doing it for kicks.
