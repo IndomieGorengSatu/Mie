@@ -1,1 +1,1 @@
-## They laughed when I said I wanted to be a comedian – they’re not laughing now.
+## What do you call a duck that gets all A's? A wise quacker.
