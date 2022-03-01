@@ -1,1 +1,1 @@
-## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
+## Why do fish live in salt water? Because pepper makes them sneeze!
