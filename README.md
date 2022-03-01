@@ -1,1 +1,2 @@
-## Why are ghosts bad liars? Because you can see right through them!
+## What did the hat say to the scarf?
+## You can hang around. I'll just go on ahead.
