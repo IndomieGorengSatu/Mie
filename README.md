@@ -1,1 +1,1 @@
-## Atheism is a non-prophet organisation.
+## Bad at golf? Join the club.
