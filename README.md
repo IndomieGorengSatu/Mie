@@ -1,1 +1,1 @@
-## Feeling pretty proud of myself. The Sesame Street puzzle I bought said 3-5 years, but I finished it in 18 months.
+## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
