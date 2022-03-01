@@ -1,1 +1,1 @@
-## What did one nut say as he chased another nut?  I'm a cashew!
+## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
