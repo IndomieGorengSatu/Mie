@@ -1,1 +1,1 @@
-## Atheism is a non-prophet organisation.
+## Want to hear my pizza joke? Never mind, it's too cheesy.
