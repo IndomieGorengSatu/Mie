@@ -1,1 +1,1 @@
-## This furniture store keeps emailing me, all I wanted was one night stand!
+## Where does Napoleon keep his armies? In his sleevies.
