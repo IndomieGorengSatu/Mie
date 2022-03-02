@@ -1,1 +1,1 @@
-## Where does Napoleon keep his armies? In his sleevies.
+## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
