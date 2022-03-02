@@ -1,1 +1,1 @@
-## I ordered a chicken and an egg from Amazon. I'll let you know.
+## I got an A on my origami assignment when I turned my paper into my teacher
