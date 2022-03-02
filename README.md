@@ -1,1 +1,1 @@
-## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
+## What did the traffic light say to the car as it passed? "Don't look I'm changing!"
