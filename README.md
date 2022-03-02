@@ -1,1 +1,1 @@
-## I’ll tell you something about German sausages, they’re the wurst
+## The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
