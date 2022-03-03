@@ -1,1 +1,1 @@
-## ‘Put the cat out’ … ‘I didn’t realize it was on fire
+## A bartender broke up with her boyfriend, but he kept asking her for another shot.
