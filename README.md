@@ -1,1 +1,1 @@
-## Why couldn't the lifeguard save the hippie? He was too far out, man.
+## Why is there always a gate around cemeteries? Because people are always dying to get in.
