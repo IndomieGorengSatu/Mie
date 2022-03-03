@@ -1,1 +1,1 @@
-## Shout out to my grandma, that's the only way she can hear.
+## I just wrote a book on reverse psychology. Do not read it!
