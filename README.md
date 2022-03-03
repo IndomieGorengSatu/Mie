@@ -1,1 +1,1 @@
-## My boss told me to attach two pieces of wood together... I totally nailed it!
+## Where do young cows eat lunch? In the calf-ateria.
