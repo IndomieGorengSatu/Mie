@@ -1,1 +1,1 @@
-## How do you fix a broken pizza? With tomato paste.
+## Where does batman go to the bathroom? The batroom.
