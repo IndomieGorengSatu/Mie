@@ -1,1 +1,1 @@
-## How do you find Will Smith in the snow?  Look for fresh prints.
+## Did you hear the one about the guy with the broken hearing aid? Neither did he.
