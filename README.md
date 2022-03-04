@@ -1,1 +1,1 @@
-## Where did you learn to make ice cream? Sunday school.
+## How do the trees get on the internet? They log on.
