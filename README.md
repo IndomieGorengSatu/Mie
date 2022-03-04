@@ -1,1 +1,1 @@
-## How do the trees get on the internet? They log on.
+## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
