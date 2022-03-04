@@ -1,1 +1,1 @@
-## Why did the scarecrow win an award? Because he was outstanding in his field.
+## Did you hear about the bread factory burning down? They say the business is toast.
