@@ -1,1 +1,1 @@
-## Did you hear the one about the guy with the broken hearing aid? Neither did he.
+## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
