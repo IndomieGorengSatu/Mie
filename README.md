@@ -1,1 +1,1 @@
-## What's red and bad for your teeth? A Brick.
+## What does an angry pepper do? It gets jalapeño face.
