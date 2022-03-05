@@ -1,1 +1,1 @@
-## Coffee has a tough time at my house, every morning it gets mugged.
+## How come the stadium got hot after the game? Because all of the fans left.
