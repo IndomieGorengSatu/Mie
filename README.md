@@ -1,1 +1,1 @@
-## Where do hamburgers go to dance? The meat-ball.
+## Whoever invented the knock-knock joke should get a no bell prize.
