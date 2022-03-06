@@ -1,1 +1,1 @@
-## "Hey, dad, did you get a haircut?" "No, I got them all cut."
+## Me and my mates are in a band called Duvet. We're a cover band.
