@@ -1,1 +1,1 @@
-## Why does Superman get invited to dinners? Because he is a Supperhero.
+## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
