@@ -1,1 +1,1 @@
-## What has ears but cannot hear? A field of corn.
+## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
