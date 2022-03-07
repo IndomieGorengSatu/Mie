@@ -1,1 +1,1 @@
-## I went to the store to pick up eight cans of sprite... when I got home I realized I'd only picked seven up
+## There's not really any training for garbagemen. They just pick things up as they go.
