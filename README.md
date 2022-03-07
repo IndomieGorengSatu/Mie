@@ -1,1 +1,1 @@
-## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
+## Why should you never trust a pig with a secret? Because it's bound to squeal.
