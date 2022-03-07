@@ -1,1 +1,1 @@
-## Where do hamburgers go to dance? The meat-ball.
+## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
