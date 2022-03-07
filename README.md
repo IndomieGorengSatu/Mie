@@ -1,1 +1,1 @@
-## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
+## I went to the store to pick up eight cans of sprite... when I got home I realized I'd only picked seven up
