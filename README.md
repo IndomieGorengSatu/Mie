@@ -1,1 +1,1 @@
-## Why was Pavlov's beard so soft?  Because he conditioned it.
+## I wish I could clean mirrors for a living. It's just something I can see myself doing.
