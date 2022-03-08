@@ -1,1 +1,1 @@
-## What's orange and sounds like a parrot? A Carrot.
+## Want to hear my pizza joke? Never mind, it's too cheesy.
