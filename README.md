@@ -1,1 +1,1 @@
-## What's brown and sticky? A stick.
+## Why was Pavlov's beard so soft?  Because he conditioned it.
