@@ -1,1 +1,1 @@
-## What do you call a boomerang that won't come back? A stick.
+## Leather is great for sneaking around because it's made of hide.
