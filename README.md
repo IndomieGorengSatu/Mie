@@ -1,1 +1,1 @@
-## I just got fired from a florist, apparently I took too many leaves.
+## I cut my finger cutting cheese. I know it may be a cheesy story but I feel grate now.
