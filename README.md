@@ -1,1 +1,1 @@
-## Leather is great for sneaking around because it's made of hide.
+## I just got fired from a florist, apparently I took too many leaves.
