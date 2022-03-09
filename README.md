@@ -1,1 +1,1 @@
-## I don’t play soccer because I enjoy the sport. I’m just doing it for kicks.
+## Leather is great for sneaking around because it's made of hide.
