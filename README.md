@@ -1,1 +1,1 @@
-## You can't trust a ladder. It will always let you down
+## Mountains aren't just funny, they are hill areas
