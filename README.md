@@ -1,1 +1,1 @@
-## How does a French skeleton say hello? Bone-jour.
+## A steak pun is a rare medium well done.
