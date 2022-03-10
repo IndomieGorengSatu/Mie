@@ -1,1 +1,1 @@
-## Why did the octopus beat the shark in a fight? Because it was well armed.
+## Someone broke into my house last night and stole my limbo trophy. How low can you go?
