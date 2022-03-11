@@ -1,1 +1,1 @@
-## Wife told me to take the spider out instead of killing it... We had some drinks, cool guy, wants to be a web developer.
+## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
