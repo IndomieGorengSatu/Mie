@@ -1,1 +1,1 @@
-## If at first you don't succeed, sky diving is not for you!
+## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
