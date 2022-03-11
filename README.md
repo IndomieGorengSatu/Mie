@@ -1,1 +1,1 @@
-## What do you get when you cross a bee and a sheep? A bah-humbug.
+## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
