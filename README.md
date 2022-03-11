@@ -1,1 +1,1 @@
-## I went to the store to pick up eight cans of sprite... when I got home I realized I'd only picked seven up
+## If at first you don't succeed, sky diving is not for you!
