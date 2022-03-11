@@ -1,1 +1,1 @@
-## Is there a hole in your shoe? No… Then how’d you get your foot in it?
+## It doesn't matter how much you push the envelope. It will still be stationary.
