@@ -1,1 +1,1 @@
-## ‘Put the cat out’ … ‘I didn’t realize it was on fire
+## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
