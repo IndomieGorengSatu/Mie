@@ -1,1 +1,2 @@
-## How do hens stay fit? They always egg-cercise!
+##  I never wanted to believe that my Dad was stealing from his job as a road worker. But when I got home, all the signs were there.
+## 
