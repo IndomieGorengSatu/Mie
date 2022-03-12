@@ -1,1 +1,1 @@
-## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
+## “Doctor, I’ve broken my arm in several places” Doctor “Well don’t go to those places.”
