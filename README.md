@@ -1,1 +1,1 @@
-## If at first you don't succeed, sky diving is not for you!
+## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
