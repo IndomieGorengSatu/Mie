@@ -1,2 +1,1 @@
-##  I never wanted to believe that my Dad was stealing from his job as a road worker. But when I got home, all the signs were there.
-## 
+## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
