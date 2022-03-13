@@ -1,1 +1,1 @@
-## What musical instrument is found in the bathroom? A tuba toothpaste.
+## You know that cemetery up the road? People are dying to get in there.
