@@ -1,1 +1,1 @@
-## How come a man driving a train got struck by lightning? He was a good conductor.
+## Did you hear the one about the giant pickle?  He was kind of a big dill.
