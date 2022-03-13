@@ -1,1 +1,1 @@
-## Did you hear the one about the giant pickle?  He was kind of a big dill.
+## Did you hear about the scientist who was lab partners with a pot of boiling water? He had a very esteemed colleague.
