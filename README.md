@@ -1,1 +1,1 @@
-## I couldn't get a reservation at the library. They were completely booked.
+## How come a man driving a train got struck by lightning? He was a good conductor.
