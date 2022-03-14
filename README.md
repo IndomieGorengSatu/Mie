@@ -1,1 +1,1 @@
-## What do you call corn that joins the army? Kernel.
+## What kind of award did the dentist receive? A little plaque.
