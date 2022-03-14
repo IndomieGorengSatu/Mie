@@ -1,1 +1,1 @@
-## Velcro… What a rip-off.
+## Two peanuts were walking down the street. One was a salted.
