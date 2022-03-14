@@ -1,2 +1,1 @@
-## What is red and smells like blue paint?
-## Red paint!
+## Why did the feline fail the lie detector test? Because he be lion.
