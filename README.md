@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## They laughed when I said I wanted to be a comedian – they’re not laughing now.
