@@ -1,1 +1,1 @@
-## What do bees do after they are married? They go on a honeymoon.
+## An apple a day keeps the bullies away. If you throw it hard enough.
