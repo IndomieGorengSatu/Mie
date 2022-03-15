@@ -1,1 +1,1 @@
-## Did you hear about the runner who was criticized? He just took it in stride
+## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
