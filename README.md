@@ -1,1 +1,1 @@
-## Why was the robot angry? Because someone kept pressing his buttons!
+## A magician was driving down the street and then he turned into a driveway.
