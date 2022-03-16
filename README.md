@@ -1,1 +1,1 @@
-## When does a joke become a dad joke? When it becomes apparent.
+## How do hens stay fit? They always egg-cercise!
