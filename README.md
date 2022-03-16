@@ -1,1 +1,1 @@
-## How do hens stay fit? They always egg-cercise!
+## It doesn't matter how much you push the envelope. It will still be stationary.
