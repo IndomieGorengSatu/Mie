@@ -1,2 +1,1 @@
-## What do you do when you see a space man?
-## Park your car, man.
+## Have you heard the rumor going around about butter? Never mind, I shouldn't spread it.
