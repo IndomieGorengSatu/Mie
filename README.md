@@ -1,1 +1,1 @@
-## Two dyslexics walk into a bra.
+## What do prisoners use to call each other? Cell phones.
