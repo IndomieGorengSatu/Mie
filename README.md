@@ -1,1 +1,1 @@
-## What did the mountain climber name his son? Cliff.
+## A magician was driving down the street and then he turned into a driveway.
