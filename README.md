@@ -1,1 +1,1 @@
-## Why did the half blind man fall in the well? Because he couldn't see that well!
+## How did Darth Vader know what Luke was getting for Christmas? He felt his presents.
