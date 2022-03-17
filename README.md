@@ -1,1 +1,1 @@
-## A bartender broke up with her boyfriend, but he kept asking her for another shot.
+## How was the snow globe feeling after the storm? A little shaken.
