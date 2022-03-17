@@ -1,1 +1,1 @@
-## Where do hamburgers go to dance? The meat-ball.
+## Why did the half blind man fall in the well? Because he couldn't see that well!
