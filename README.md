@@ -1,1 +1,1 @@
-## "Hey, dad, did you get a haircut?" "No, I got them all cut."
+## I gave all my dead batteries away today, free of charge.
