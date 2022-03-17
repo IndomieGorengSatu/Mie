@@ -1,1 +1,1 @@
-## I’ve deleted the phone numbers of all the Germans I know from my mobile phone. Now it’s Hans free.
+## "Hey, dad, did you get a haircut?" "No, I got them all cut."
