@@ -1,1 +1,1 @@
-## What kind of magic do cows believe in? MOODOO.
+## What does an angry pepper do? It gets jalapeño face.
