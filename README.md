@@ -1,1 +1,1 @@
-## I ate a clock yesterday. It was so time consuming.
+## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
