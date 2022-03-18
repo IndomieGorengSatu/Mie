@@ -1,1 +1,1 @@
-## A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
+## What is worse then finding a worm in your Apple? Finding half a worm in your Apple.
