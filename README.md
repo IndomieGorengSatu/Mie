@@ -1,2 +1,1 @@
-## What's the difference between a seal and a sea lion?
-## An ion! 
+## “Hold on, I have something in my shoe”  “I’m pretty sure it’s a foot”
