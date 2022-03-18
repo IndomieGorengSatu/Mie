@@ -1,1 +1,1 @@
-## I just broke my guitar. It's okay, I won't fret
+## Geology rocks, but Geography is where it's at!
