@@ -1,1 +1,1 @@
-## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
+## Thanks for explaining the word "many" to me. It means a lot.
