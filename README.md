@@ -1,1 +1,1 @@
-## Why did the tree go to the dentist? It needed a root canal.
+## What happens to a frog's car when it breaks down? It gets toad.
