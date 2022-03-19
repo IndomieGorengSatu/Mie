@@ -1,1 +1,1 @@
-## My first time using an elevator was an uplifting experience. The second time let me down.
+## Why did the Clydesdale give the pony a glass of water?  Because he was a little horse!
