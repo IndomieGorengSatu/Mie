@@ -1,1 +1,1 @@
-## I'll tell you what often gets over looked... garden fences.
+## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
