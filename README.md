@@ -1,1 +1,1 @@
-## How much does a hipster weigh? An instagram.
+## Wife told me to take the spider out instead of killing it... We had some drinks, cool guy, wants to be a web developer.
