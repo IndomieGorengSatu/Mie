@@ -1,1 +1,1 @@
-## Why do crabs never give to charity? Because they’re shellfish.
+## Why don't skeletons ride roller coasters? They don't have the stomach for it.
