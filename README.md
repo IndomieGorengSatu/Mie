@@ -1,1 +1,1 @@
-## Two guys walked into a bar, the third one ducked.
+## How do you get a baby alien to sleep?  You rocket.
