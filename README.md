@@ -1,1 +1,1 @@
-## What kind of music do mummy's like? Rap
+## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
