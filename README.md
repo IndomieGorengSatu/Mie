@@ -1,1 +1,1 @@
-## What did the left eye say to the right eye? Between us, something smells!
+## Dad, can you put my shoes on? I don't think they'll fit me.
