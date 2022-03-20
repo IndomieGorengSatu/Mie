@@ -1,1 +1,1 @@
-## Why was the robot angry? Because someone kept pressing his buttons!
+## Why did the melons plan a big wedding? Because they cantaloupe!
