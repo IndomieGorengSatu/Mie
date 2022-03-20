@@ -1,1 +1,1 @@
-## Why don't skeletons ride roller coasters? They don't have the stomach for it.
+## They tried to make a diamond shaped like a duck. It quacked under the pressure.
