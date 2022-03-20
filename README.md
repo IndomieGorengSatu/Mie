@@ -1,1 +1,1 @@
-## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
+## Why do crabs never give to charity? Because they’re shellfish.
