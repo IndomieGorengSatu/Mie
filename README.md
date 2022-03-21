@@ -1,1 +1,1 @@
-## Chances are if you' ve seen one shopping center, you've seen a mall.
+## Did you hear about the new restaurant on the moon? The food is great, but there’s just no atmosphere.
