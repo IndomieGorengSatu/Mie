@@ -1,1 +1,1 @@
-## I considered building the patio by myself. But I didn't have the stones.
+## What did the calculator say to the student? You can count on me.
