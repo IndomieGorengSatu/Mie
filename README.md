@@ -1,1 +1,1 @@
-## What did the calculator say to the student? You can count on me.
+## I was just looking at my ceiling. Not sure if it’s the best ceiling in the world, but it’s definitely up there.
