@@ -1,1 +1,1 @@
-## Who is the coolest Doctor in the hospital? The hip Doctor!
+## Why do mathematicians hate the U.S.? Because it's indivisible.
