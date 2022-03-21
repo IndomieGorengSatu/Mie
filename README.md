@@ -1,1 +1,1 @@
-## How do you steal a coat? You jacket.
+## Chances are if you' ve seen one shopping center, you've seen a mall.
