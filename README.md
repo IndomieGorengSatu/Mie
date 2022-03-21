@@ -1,1 +1,1 @@
-## You can't trust a ladder. It will always let you down
+## What do you call a bear with no teeth? A gummy bear!
