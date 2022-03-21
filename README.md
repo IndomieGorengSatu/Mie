@@ -1,1 +1,1 @@
-## I used to think I was indecisive, but now I'm not sure.
+## I couldn't figure out how the seat belt worked. Then it just clicked.
