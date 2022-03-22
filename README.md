@@ -1,1 +1,1 @@
-## Don't buy flowers at a monastery. Because only you can prevent florist friars.
+## I’ve just been reading a book about anti-gravity, it’s impossible to put down!
