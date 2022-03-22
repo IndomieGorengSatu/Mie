@@ -1,1 +1,1 @@
-## I went to the store to pick up eight cans of sprite... when I got home I realized I'd only picked seven up
+## Did you hear about the new restaurant on the moon? The food is great, but there’s just no atmosphere.
