@@ -1,1 +1,1 @@
-## To the guy who invented zero... thanks for nothing.
+## Can a kangaroo jump higher than the Empire State Building? Of course. The Empire State Building can't jump.
