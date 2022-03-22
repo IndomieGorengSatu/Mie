@@ -1,1 +1,1 @@
-## This morning I was wondering where the sun was, but then it dawned on me.
+## What do you get when you cross a snowman with a vampire? Frostbite.
