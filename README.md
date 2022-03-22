@@ -1,1 +1,1 @@
-## Why do birds fly south for the winter? Because it's too far to walk.
+## Don't buy flowers at a monastery. Because only you can prevent florist friars.
