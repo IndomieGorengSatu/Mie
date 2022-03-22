@@ -1,1 +1,1 @@
-## Why are fish so smart? Because they live in schools!
+## Why do birds fly south for the winter? Because it's too far to walk.
