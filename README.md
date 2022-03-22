@@ -1,1 +1,1 @@
-## I was just looking at my ceiling. Not sure if it’s the best ceiling in the world, but it’s definitely up there.
+## This morning I was wondering where the sun was, but then it dawned on me.
