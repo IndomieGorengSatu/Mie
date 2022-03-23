@@ -1,1 +1,1 @@
-## If two vegans are having an argument, is it still considered beef?
+## Did you know that ghosts call their true love their ghoul-friend?
