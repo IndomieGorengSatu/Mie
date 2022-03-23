@@ -1,1 +1,1 @@
-## Why was ten scared of seven? Because seven ate nine.
+## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
