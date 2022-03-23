@@ -1,1 +1,1 @@
-## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
+## What lies at the bottom of the ocean and twitches? A nervous wreck.
