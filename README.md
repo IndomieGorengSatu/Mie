@@ -1,1 +1,1 @@
-## Where do sheep go to get their hair cut? The baa-baa shop.
+## I just read a book about Stockholm syndrome. It was pretty bad at first, but by the end I liked it.
