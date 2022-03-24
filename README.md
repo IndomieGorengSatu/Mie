@@ -1,1 +1,1 @@
-## I went on a date last night with a girl from the zoo. It was great. She’s a keeper.
+## Why do pirates not know the alphabet? They always get stuck at "C".
