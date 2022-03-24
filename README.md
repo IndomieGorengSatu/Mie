@@ -1,1 +1,1 @@
-## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
+## A bartender broke up with her boyfriend, but he kept asking her for another shot.
