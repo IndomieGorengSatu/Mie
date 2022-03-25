@@ -1,1 +1,1 @@
-## I was thinking about moving to Moscow but there is no point Russian into things.
+## This morning I was wondering where the sun was, but then it dawned on me.
