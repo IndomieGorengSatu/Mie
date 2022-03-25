@@ -1,1 +1,1 @@
-## Why are basketball players messy eaters? Because they are always dribbling.
+## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
