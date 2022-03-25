@@ -1,1 +1,1 @@
-## "Hey, dad, did you get a haircut?" "No, I got them all cut."
+## I was thinking about moving to Moscow but there is no point Russian into things.
