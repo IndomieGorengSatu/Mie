@@ -1,1 +1,1 @@
-## What’s E.T. short for? He’s only got little legs.
+## Why couldn't the lifeguard save the hippie? He was too far out, man.
