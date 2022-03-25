@@ -1,1 +1,1 @@
-## It's difficult to say what my wife does, she sells sea shells by the sea shore.
+## What's the best thing about elevator jokes? They work on so many levels.
