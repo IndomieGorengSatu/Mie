@@ -1,1 +1,1 @@
-## Why couldn't the lifeguard save the hippie? He was too far out, man.
+## They tried to make a diamond shaped like a duck. It quacked under the pressure.
