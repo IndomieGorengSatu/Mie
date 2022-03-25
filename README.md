@@ -1,1 +1,1 @@
-## What do you call someone with no nose? Nobody knows.
+## What has ears but cannot hear? A field of corn.
