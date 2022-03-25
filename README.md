@@ -1,1 +1,1 @@
-## What has ears but cannot hear? A field of corn.
+## Why was the robot angry? Because someone kept pressing his buttons!
