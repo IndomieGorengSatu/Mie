@@ -1,1 +1,1 @@
-## Man, I really love my furniture... me and my recliner go way back.
+## Why do choirs keep buckets handy? So they can carry their tune
