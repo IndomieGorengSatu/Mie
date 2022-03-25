@@ -1,1 +1,1 @@
-## They tried to make a diamond shaped like a duck. It quacked under the pressure.
+## It's difficult to say what my wife does, she sells sea shells by the sea shore.
