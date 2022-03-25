@@ -1,1 +1,1 @@
-## Why is the ocean always blue? Because the shore never waves back.
+## Today a girl said she recognized me from vegetarian club, but I’m sure I’ve never met herbivore.
