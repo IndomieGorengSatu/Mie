@@ -1,1 +1,1 @@
-## How do hens stay fit? They always egg-cercise!
+## Two guys walked into a bar, the third one ducked.
