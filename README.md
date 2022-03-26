@@ -1,2 +1,1 @@
-## What did the hat say to the scarf?
-## You can hang around. I'll just go on ahead.
+## I went to the doctor today and he told me I had type A blood but it was a type O.
