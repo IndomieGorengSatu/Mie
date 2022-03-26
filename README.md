@@ -1,1 +1,1 @@
-## Two guys walked into a bar, the third one ducked.
+## There's not really any training for garbagemen. They just pick things up as they go.
