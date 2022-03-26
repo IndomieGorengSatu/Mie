@@ -1,1 +1,1 @@
-## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
+## Chances are if you' ve seen one shopping center, you've seen a mall.
