@@ -1,1 +1,1 @@
-## The best time on a clock is 6:30--hands down.
+## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
