@@ -1,1 +1,1 @@
-## If two vegans are having an argument, is it still considered beef?
+## It takes guts to be an organ donor.
