@@ -1,1 +1,1 @@
-## When does a joke become a dad joke? When it becomes apparent.
+## Why do valley girls hang out in odd numbered groups? Because they can't even.
