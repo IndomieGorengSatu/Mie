@@ -1,1 +1,1 @@
-## How are false teeth like stars? They come out at night!
+## They tried to make a diamond shaped like a duck. It quacked under the pressure.
