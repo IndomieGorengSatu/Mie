@@ -1,1 +1,1 @@
-## Why are fish easy to weigh? Because they have their own scales.
+## What does a clock do when it's hungry? It goes back four seconds!
