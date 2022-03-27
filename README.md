@@ -1,1 +1,1 @@
-## Why do valley girls hang out in odd numbered groups? Because they can't even.
+## A man tried to sell me a coffin today. I told him that's the last thing I need.
