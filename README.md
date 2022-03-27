@@ -1,1 +1,1 @@
-## What do you get if you put a duck in a cement mixer? Quacks in the pavement.
+## I broke my finger at work today, on the other hand I'm completely fine.
