@@ -1,1 +1,1 @@
-## Conjunctivitis.com – now that’s a site for sore eyes.
+## If two vegans are having an argument, is it still considered beef?
