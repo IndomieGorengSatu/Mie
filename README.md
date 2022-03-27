@@ -1,1 +1,1 @@
-## Why was the broom late for the meeting? He overswept.
+## How are false teeth like stars? They come out at night!
