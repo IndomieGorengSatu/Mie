@@ -1,1 +1,1 @@
-## I broke my finger at work today, on the other hand I'm completely fine.
+## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
