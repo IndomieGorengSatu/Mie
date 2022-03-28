@@ -1,1 +1,1 @@
-## "What time is it?" I don't know... it keeps changing.
+## What do you do when your bunny gets wet? You get your hare dryer.
