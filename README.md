@@ -1,1 +1,2 @@
-## Why don't skeletons ride roller coasters? They don't have the stomach for it.
+## Some people say that I never got over my obsession with Phil Collins.
+## But take a look at me now.
