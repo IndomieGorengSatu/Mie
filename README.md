@@ -1,1 +1,1 @@
-## So a duck walks into a pharmacy and says “Give me some chap-stick… and put it on my bill”
+## Why don't skeletons ride roller coasters? They don't have the stomach for it.
