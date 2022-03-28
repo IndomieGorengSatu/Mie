@@ -1,1 +1,2 @@
-## ‘Put the cat out’ … ‘I didn’t realize it was on fire
+## Why did Mozart kill all his chickens?
+## Because when he asked them who the best composer was, they'd all say "Bach bach bach!"
