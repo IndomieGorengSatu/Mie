@@ -1,1 +1,1 @@
-## Did you know that ghosts call their true love their ghoul-friend?
+## "I'll call you later." Don't call me later, call me Dad.
