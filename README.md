@@ -1,1 +1,1 @@
-## Egyptians claimed to invent the guitar, but they were such lyres.﻿
+## My first time using an elevator was an uplifting experience. The second time let me down.
