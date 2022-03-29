@@ -1,1 +1,1 @@
-## It takes guts to be an organ donor.
+## I gave all my dead batteries away today, free of charge.
