@@ -1,1 +1,1 @@
-## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
+## What kind of dinosaur loves to sleep? A stega-snore-us.
