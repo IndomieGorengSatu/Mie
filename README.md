@@ -1,1 +1,1 @@
-## I’m on a whiskey diet. I’ve lost three days already.
+## When does a joke become a dad joke? When it becomes apparent.
