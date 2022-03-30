@@ -1,1 +1,1 @@
-## The shovel was a ground-breaking invention.
+## Why do mathematicians hate the U.S.? Because it's indivisible.
