@@ -1,1 +1,1 @@
-## Why do mathematicians hate the U.S.? Because it's indivisible.
+## I’m on a whiskey diet. I’ve lost three days already.
