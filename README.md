@@ -1,1 +1,1 @@
-## How was the snow globe feeling after the storm? A little shaken.
+## I bought shoes from a drug dealer once. I don't know what he laced them with, but I was tripping all day.
