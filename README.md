@@ -1,1 +1,1 @@
-## I applied to be a doorman but didn't get the job due to lack of experience. That surprised me, I thought it was an entry level position.
+## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
