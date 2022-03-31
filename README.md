@@ -1,1 +1,1 @@
-## I just got fired from a florist, apparently I took too many leaves.
+## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
