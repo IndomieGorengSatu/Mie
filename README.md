@@ -1,1 +1,1 @@
-## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
+## I used to have a job at a calendar factory but I got the sack because I took a couple of days off.
