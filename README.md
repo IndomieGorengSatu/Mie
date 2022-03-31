@@ -1,1 +1,1 @@
-## Did you know crocodiles could grow up to 15 feet? But most just have 4.
+## I applied to be a doorman but didn't get the job due to lack of experience. That surprised me, I thought it was an entry level position.
