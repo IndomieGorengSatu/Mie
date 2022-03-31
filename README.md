@@ -1,1 +1,1 @@
-## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
+## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
