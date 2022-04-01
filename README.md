@@ -1,1 +1,1 @@
-## What did the ocean say to the beach? Thanks for all the sediment.
+## I have kleptomania, but when it gets bad, I take something for it.
