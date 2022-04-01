@@ -1,1 +1,1 @@
-## What time did the man go to the dentist? Tooth hurt-y.
+## What kind of dinosaur loves to sleep? A stega-snore-us.
