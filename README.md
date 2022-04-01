@@ -1,1 +1,1 @@
-## I broke my finger at work today, on the other hand I'm completely fine.
+## I am terrified of elevators. I’m going to start taking steps to avoid them.
