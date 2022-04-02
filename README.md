@@ -1,1 +1,1 @@
-## “Hold on, I have something in my shoe”  “I’m pretty sure it’s a foot”
+## I was just looking at my ceiling. Not sure if it’s the best ceiling in the world, but it’s definitely up there.
