@@ -1,1 +1,1 @@
-## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
+## What did one wall say to the other wall? I'll meet you at the corner!
