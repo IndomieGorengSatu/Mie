@@ -1,1 +1,1 @@
-## I fear for the calendar, its days are numbered.
+## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
