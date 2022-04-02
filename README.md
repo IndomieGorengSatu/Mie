@@ -1,1 +1,1 @@
-## What was a more important invention than the first telephone? The second one.
+## “Hold on, I have something in my shoe”  “I’m pretty sure it’s a foot”
