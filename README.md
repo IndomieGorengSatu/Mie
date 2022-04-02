@@ -1,1 +1,1 @@
-## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
+## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
