@@ -1,2 +1,1 @@
-## A weasel walks into a bar. The bartender says, "Wow, I've never served a weasel before. What can I get for you?"
-## "Pop," goes the weasel.
+## The biggest knight at King Arthur's round table was Sir Cumference. He acquired his size from eating too much pi.
