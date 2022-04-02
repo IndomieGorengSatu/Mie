@@ -1,1 +1,1 @@
-## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
+## In my career as a lumberjack I cut down exactly 52,487 trees. I know because I kept a log.
