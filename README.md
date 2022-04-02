@@ -1,1 +1,1 @@
-## Why was it called the dark ages? Because of all the knights. 
+## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
