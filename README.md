@@ -1,1 +1,1 @@
-## I’m on a whiskey diet. I’ve lost three days already.
+## I just got fired from a florist, apparently I took too many leaves.
