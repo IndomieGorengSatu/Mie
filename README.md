@@ -1,1 +1,2 @@
-## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
+## A weasel walks into a bar. The bartender says, "Wow, I've never served a weasel before. What can I get for you?"
+## "Pop," goes the weasel.
