@@ -1,1 +1,1 @@
-## What did the mountain climber name his son? Cliff.
+## Writing with a broken pencil is pointless.
