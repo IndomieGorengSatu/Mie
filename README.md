@@ -1,1 +1,1 @@
-## What did the piece of bread say to the knife? Butter me up.
+## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
