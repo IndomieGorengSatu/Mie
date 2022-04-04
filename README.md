@@ -1,1 +1,1 @@
-## I started a new business making yachts in my attic this year...the sails are going through the roof
+## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
