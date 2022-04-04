@@ -1,1 +1,1 @@
-## Where do rabbits go after they get married? On a bunny-moon.
+## Why did the belt go to prison? He held up a pair of pants!
