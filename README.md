@@ -1,1 +1,1 @@
-## Why did the belt go to prison? He held up a pair of pants!
+## Why don't sharks eat clowns?  Because they taste funny.
