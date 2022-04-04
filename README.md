@@ -1,1 +1,1 @@
-## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
+## What is worse then finding a worm in your Apple? Finding half a worm in your Apple.
