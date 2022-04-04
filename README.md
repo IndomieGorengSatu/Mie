@@ -1,1 +1,1 @@
-## What did one snowman say to the other snow man? Do you smell carrot?
+## What's orange and sounds like a parrot? A Carrot.
