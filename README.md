@@ -1,1 +1,1 @@
-## What do you call a group of disorganized cats? A cat-tastrophe.
+## Me and my mates are in a band called Duvet. We're a cover band.
