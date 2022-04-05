@@ -1,1 +1,1 @@
-## Why do bees hum? Because they don't know the words.
+## Dad, can you put my shoes on? I don't think they'll fit me.
