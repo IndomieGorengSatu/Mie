@@ -1,1 +1,1 @@
-## I'm glad I know sign language, it's pretty handy.
+## Why did the cookie cry? It was feeling crumby.
