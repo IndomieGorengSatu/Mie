@@ -1,1 +1,1 @@
-## I cut my finger chopping cheese, but I think that I may have grater problems.
+## Have you heard of the band 1023MB? They haven't got a gig yet.
