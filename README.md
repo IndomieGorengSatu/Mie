@@ -1,1 +1,1 @@
-## Why did the melons plan a big wedding? Because they cantaloupe!
+## I cut my finger chopping cheese, but I think that I may have grater problems.
