@@ -1,1 +1,1 @@
-## Me and my mates are in a band called Duvet. We're a cover band.
+## What did celery say when he broke up with his girlfriend? She wasn't right for me, so I really don't carrot all.
