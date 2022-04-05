@@ -1,1 +1,1 @@
-## What lies at the bottom of the ocean and twitches? A nervous wreck.
+## What’s E.T. short for? He’s only got little legs.
