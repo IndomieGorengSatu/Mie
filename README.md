@@ -1,1 +1,1 @@
-## Astronomers got tired watching the moon go around the earth for 24 hours. They decided to call it a day.
+## A man walked in to a bar with some asphalt on his arm. He said “Two beers please, one for me and one for the road.”
