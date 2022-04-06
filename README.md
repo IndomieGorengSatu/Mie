@@ -1,1 +1,1 @@
-## What did the calculator say to the student? You can count on me.
+## Which side of the chicken has more feathers? The outside.
