@@ -1,1 +1,1 @@
-## What do you call two barracuda fish?  A Pairacuda!
+## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
