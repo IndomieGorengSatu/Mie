@@ -1,1 +1,1 @@
-## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
+## A butcher accidentally backed into his meat grinder and got a little behind in his work that day.
