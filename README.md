@@ -1,1 +1,1 @@
-## I asked a frenchman if he played video games. He said "Wii"
+## Thanks for explaining the word "many" to me. It means a lot.
