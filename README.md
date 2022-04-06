@@ -1,1 +1,1 @@
-## If two vegans are having an argument, is it still considered beef?
+## Astronomers got tired watching the moon go around the earth for 24 hours. They decided to call it a day.
