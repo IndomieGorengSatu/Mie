@@ -1,1 +1,1 @@
-## Why did the m&m go to school? Because it wanted to be a Smartie!
+## What did the calculator say to the student? You can count on me.
