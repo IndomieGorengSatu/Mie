@@ -1,2 +1,1 @@
-## Where do cats write notes?
-## Scratch Paper!
+## I couldn't figure out how the seat belt worked. Then it just clicked.
