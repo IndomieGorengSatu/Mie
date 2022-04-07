@@ -1,1 +1,1 @@
-## What do you call a beehive without the b's? An eehive.
+## Why can't you use "Beef stew" as a password? Because it's not stroganoff.
