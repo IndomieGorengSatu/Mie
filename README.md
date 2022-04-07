@@ -1,1 +1,1 @@
-## I couldn't figure out how the seat belt worked. Then it just clicked.
+## Breaking news! Energizer Bunny arrested – charged with battery.
