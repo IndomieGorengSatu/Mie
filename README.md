@@ -1,1 +1,1 @@
-## Where do rabbits go after they get married? On a bunny-moon.
+## A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
