@@ -1,1 +1,1 @@
-## Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
+## I couldn't figure out how the seat belt worked. Then it just clicked.
