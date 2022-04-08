@@ -1,1 +1,1 @@
-## What is a vampire's favorite fruit? A blood orange.
+## A magician was driving down the street and then he turned into a driveway.
