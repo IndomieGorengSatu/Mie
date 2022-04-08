@@ -1,1 +1,1 @@
-## A magician was driving down the street and then he turned into a driveway.
+## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
