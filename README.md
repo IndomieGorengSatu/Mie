@@ -1,1 +1,1 @@
-## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
+## Why did the Clydesdale give the pony a glass of water?  Because he was a little horse!
