@@ -1,1 +1,1 @@
-## Why was the picture sent to prison? It was framed.
+## What is a vampire's favorite fruit? A blood orange.
