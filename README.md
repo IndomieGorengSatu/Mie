@@ -1,1 +1,1 @@
-## Where do sheep go to get their hair cut? The baa-baa shop.
+## Where do rabbits go after they get married? On a bunny-moon.
