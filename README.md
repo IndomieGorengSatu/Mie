@@ -1,1 +1,1 @@
-## I’m on a whiskey diet. I’ve lost three days already.
+## How do you make holy water? You boil the hell out of it.
