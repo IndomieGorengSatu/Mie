@@ -1,1 +1,1 @@
-## I made a belt out of watches once... It was a waist of time.
+## Why is no one friends with Dracula? Because he's a pain in the neck.
