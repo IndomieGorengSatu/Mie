@@ -1,1 +1,1 @@
-## What do you call a cow with no legs? Ground beef.
+## I applied to be a doorman but didn't get the job due to lack of experience. That surprised me, I thought it was an entry level position.
