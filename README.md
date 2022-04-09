@@ -1,1 +1,1 @@
-## How do you make holy water? You boil the hell out of it.
+## There's not really any training for garbagemen. They just pick things up as they go.
