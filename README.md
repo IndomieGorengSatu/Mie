@@ -1,1 +1,1 @@
-## Did you hear that David lost his ID in prague? Now we just have to call him Dav.
+## Ever wondered why bees hum? It's because they don't know the words.
