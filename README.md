@@ -1,2 +1,1 @@
-## What is the best way to carve?
-## Whittle by whittle.
+## I’m reading a book on the history of glue – can’t put it down.
