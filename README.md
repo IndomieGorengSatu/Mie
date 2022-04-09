@@ -1,2 +1,1 @@
-## Why did the cookie cry?
-## Because his mother was a wafer so long
+## Why did Dracula lie in the wrong coffin? He made a grave mistake.
