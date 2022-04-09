@@ -1,1 +1,1 @@
-## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
+## Geology rocks, but Geography is where it's at!
