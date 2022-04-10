@@ -1,1 +1,2 @@
-## Wife told me to take the spider out instead of killing it... We had some drinks, cool guy, wants to be a web developer.
+## What did the hat say to the scarf?
+## You can hang around. I'll just go on ahead.
