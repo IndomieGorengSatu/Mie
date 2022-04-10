@@ -1,1 +1,1 @@
-## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
+## Why do bananas have to put on sunscreen before they go to the beach? Because they might peel!
