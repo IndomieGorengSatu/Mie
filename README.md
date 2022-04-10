@@ -1,1 +1,3 @@
-## I have the heart of a lion... and a lifetime ban from the San Diego Zoo.
+## How many seconds are in a year?
+## 12.
+## January 2nd, February 2nd, March 2nd, April 2nd.... etc
