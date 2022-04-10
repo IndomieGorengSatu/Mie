@@ -1,1 +1,1 @@
-## Yesterday a clown held a door open for me. I thought it was a nice jester.
+## “Doctor, I’ve broken my arm in several places” Doctor “Well don’t go to those places.”
