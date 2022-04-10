@@ -1,1 +1,3 @@
-## I heard there was a new store called Moderation. They have everything there
+## Why do pumpkins sit on people’s porches?
+## 
+## They have no hands to knock on the door.
