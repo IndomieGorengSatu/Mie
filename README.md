@@ -1,1 +1,1 @@
-## what do you call a dog that can do magic tricks? a labracadabrador
+## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
