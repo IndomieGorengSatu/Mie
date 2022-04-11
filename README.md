@@ -1,1 +1,1 @@
-## What do you call a monkey in a mine field? A babooooom!
+## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
