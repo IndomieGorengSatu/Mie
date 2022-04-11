@@ -1,1 +1,1 @@
-## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
+## I have kleptomania, but when it gets bad, I take something for it.
