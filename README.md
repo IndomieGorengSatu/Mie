@@ -1,1 +1,1 @@
-## I have kleptomania, but when it gets bad, I take something for it.
+## You can't trust a ladder. It will always let you down
