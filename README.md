@@ -1,1 +1,1 @@
-## Bad at golf? Join the club.
+## Just watched a documentary about beavers… It was the best damn program I’ve ever seen.
