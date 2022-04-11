@@ -1,1 +1,1 @@
-## What did the left eye say to the right eye? Between us, something smells!
+## I’ve deleted the phone numbers of all the Germans I know from my mobile phone. Now it’s Hans free.
