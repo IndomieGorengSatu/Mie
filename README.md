@@ -1,1 +1,1 @@
-## You can't trust a ladder. It will always let you down
+## Did you hear the joke about the wandering nun? She was a roman catholic.
