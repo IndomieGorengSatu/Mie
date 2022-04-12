@@ -1,1 +1,1 @@
-## The rotation of earth really makes my day.
+## What did one plate say to the other plate? Dinner is on me!
