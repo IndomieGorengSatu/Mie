@@ -1,1 +1,3 @@
-## How many apples grow on a tree? All of them!
+## Never Trust Someone With Graph Paper...
+## 
+## They're always plotting something.
