@@ -1,1 +1,1 @@
-## When do doctors get angry? When they run out of patients.
+## Why do bananas have to put on sunscreen before they go to the beach? Because they might peel!
