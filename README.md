@@ -1,1 +1,1 @@
-## What did one plate say to the other plate? Dinner is on me!
+## What is a witch's favorite subject in school? Spelling!
