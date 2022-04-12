@@ -1,1 +1,1 @@
-## Why are oranges the smartest fruit? Because they are made to concentrate. 
+## What did the left eye say to the right eye? Between us, something smells!
