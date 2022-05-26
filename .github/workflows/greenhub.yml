@@ -26,7 +26,6 @@ jobs:
           ${{ secrets.cr }}
           git config --local user.email "rezagaming61@gmail.com"
           git config --local user.name "indomiegorengsatu"
-          git config --global --add safe.directory /github/workspace
           git add -A
           git commit -s -am "$(curl -s http://whatthecommit.com/index.txt)"
           
